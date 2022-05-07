@@ -1,2 +1,3 @@
 # Chika best gril
-sus
+ratio
+
